@@ -2,4 +2,4 @@
 irgendetwas
 
 
-hallo und ich sitze an der uni und probire sachen aus 
+hallo und ich sitze an der uni und probiere sachen aus 
